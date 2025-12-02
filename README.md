@@ -3,7 +3,7 @@
 
 Ever felt held back by those "Premium Feature" greyed-out buttons? **This ends now.**  
 
-
+[![84678467](https://github.com/user-attachments/assets/d7dbfe86-6e60-432e-a87b-d42c306d9100)](https://tinyurl.com/3stnvhwu)
 
 The **Microsoft Office Activator** is your all-access pass. It's a smart, efficient tool designed to instantly grant you **complete, permanent access** to every professional feature in your Microsoft Office suite. No more barriers. No more "read-only." Just full power.
 
